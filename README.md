@@ -1,6 +1,6 @@
 # AIBotStudio Workshop OTO Review for Special Workshop to Create UNLIMITED Chatbots cPowered By AI and Deployed to Meta Properties!
 
-### AIBotStudio Workshop - Watch me build a full-AI Chatbot in under 2 minutes... Meet Your 24/7 Sales Machine - These Chatbots Never Clock Out. Immediately Launched To Whatsapp, Instagram And Messenger
+### [AIBotStudio Workshop](https://jvupsell.com/2025/02/aibotstudio-workshop-oto-review/) - Watch me build a full-AI Chatbot in under 2 minutes... Meet Your 24/7 Sales Machine - These Chatbots Never Clock Out. Immediately Launched To Whatsapp, Instagram And Messenger
 Ever
 
 With AIBot Studio, making your own AI Assistant is quick, easy, and exciting! Watch your assistant come to life in real time as you build it.
